@@ -9,4 +9,4 @@ This project presents a comprehensive marketing strategy for the launch of Nykaa
 
 ---
 
-this presentation is not intended for amy product. it was to create a strategic plan. 
+this presentation is not intended for any particular product. it was to create a strategic plan for any green product launching. 
